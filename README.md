@@ -3,5 +3,6 @@
 - Developed an in interest in programming from my curriculum and am working on developing my skills
 while I job hunt.
 - 📫 How to reach me:
+
 Email: anthonyah2017@gmail.com
 Linkedin: https://www.linkedin.com/in/anthonyalvarez10/
